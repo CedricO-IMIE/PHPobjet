@@ -3,7 +3,7 @@
 Bonjour ^^
 
 
-Cedric est un gros méchant de bababbabababafzjksblfqzlZculé
+Cedric est un gros
 
 toi meme
 
